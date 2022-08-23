@@ -14,4 +14,4 @@ Businesses can use the WhatsApp chat links and enhance the business via its seve
 
 Avail Meetanshi’s free WhatsApp link generator to scale your business to the next level!
 
-For more information, visit [https://meetanshi.com/whatsapp-link-generator](https://meetanshi.com/whatsapp-link-generator)
+For more information, visit : ***[https://meetanshi.com/whatsapp-link-generator]***(https://meetanshi.com/whatsapp-link-generator)
